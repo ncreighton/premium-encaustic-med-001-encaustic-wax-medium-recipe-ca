@@ -1,0 +1,2 @@
+# premium-encaustic-med-001-encaustic-wax-medium-recipe-ca
+Stop wasting expensive damar resin and beeswax on inconsistent medium batches—this Notion calculator gives you precise, repeatable recipes every time.  The Encaustic Wax Medium Recipe Calculator eliminates guesswork by automatically adjusting ingredient ratios based on your desired hardness, gloss, and batch size. Save money, reduce waste, and achi
